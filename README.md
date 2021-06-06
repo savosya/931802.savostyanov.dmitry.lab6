@@ -1,0 +1,1 @@
+# 931802.savostyanov.dmitry.lab6
